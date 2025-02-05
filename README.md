@@ -3,7 +3,7 @@
 
 ## Introduction
 
-Welcome to WaterLoadup Pro ("we," "our," or "us"). We respect your privacy and are committed to protecting your personal data. This privacy policy will inform you about how we handle your data when you use our water sales management application and tell you about your privacy rights.
+Welcome to WaterLoadup ("we," "our," or "us"). We respect your privacy and are committed to protecting your personal data. This privacy policy will inform you about how we handle your data when you use our water sales management application and tell you about your privacy rights.
 
 ## Information We Collect
 
