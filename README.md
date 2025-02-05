@@ -91,7 +91,7 @@ We retain your data for as long as:
 ## Contact Us
 
 If you have questions about this privacy policy, please contact us at:
-- Email: [Your Support Email]
+- Email: chutianwen123@gmail.com
 - Website: [Your Website]
 - Address: [Your Business Address]
 
