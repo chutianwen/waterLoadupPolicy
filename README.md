@@ -1,5 +1,5 @@
 # Privacy Policy for WaterLoadup
-*Last updated: [Current Date]*
+*Last updated: 02/04/2025*
 
 ## Introduction
 
